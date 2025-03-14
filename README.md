@@ -4,4 +4,4 @@ this is my friend yuz.
 
 as you can see the screenshot above, she has forked from my main github layout and that's cus she was curious about what websites i used for the gifs n other stuffs. its nothing bad, shes not trying to copy me !! please do not send negative comments or attack on her <3 we've already talked about this and i gave her permission to do so. she cant also delete the repository for some reason...! 
 
-![](https://media.tenor.com/AdKjpwcZ6nQAAAAm/arknights-amiya.webp) we don't have conflicts or anything, we are on good terms and i just dont want anyone to be confused!
+![](https://media.tenor.com/AdKjpwcZ6nQAAAAm/arknights-amiya.webp) we don't have dramas between each other or anything, we are on good terms and i just dont want anyone to be confused!
